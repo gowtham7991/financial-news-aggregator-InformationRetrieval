@@ -1,0 +1,1 @@
+https://edition.cnn.com/2023/08/31/investing/premarket-stocks-trading-rates-tech-stocks/index.html
